@@ -34,7 +34,7 @@ carga horaria:4h
 
 carga horaria: 2h
 
-[Certificado 2] (2074034.pdf)
+[Certificado 2](2074034.pdf)
 
 3.pibic2021/2022e pibex2021/
 
@@ -59,19 +59,19 @@ básico/carga horaria:4h
 
 carga horaria:1h
 
-[Certificado](7075307.pdf)
+[Certificado 6](7075307.pdf)
 
 7.sesao de paines jonada tecnica cientifica e mostra de extensao/
 
 carga hoaria:4h
 
-[Certificado](8075420.pdf)
+[Certificado 7](8075420.pdf)
 
 8.Paletra- A amozonia e os desafios de agritura moderna uma visao biotecnologica na cultura do dende/
 
 carga horaria: 1h
 
-[Certificado](9075520.pdf)
+[Certificado 8](9075520.pdf)
 
 
 
