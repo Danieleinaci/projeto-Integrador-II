@@ -24,11 +24,37 @@ E-mail: danieleinaciolopes36@gmail.com
 
 ## FORMAÇÃO COMPLEMENTAR
 
-1.Oficina/workshop-nações de Investimento básico/carga horaria:4h
-2.Metaverso uma imersão educacional/carga horaria: 2h
-3.pibic2021/2022e pibex2021/carga horaria:4h
-4.Filme - o menino que descobriuo vento/ carga horaria 2h
-5.Oficina/workshop-nações de Investimento básico/carga horaria:4h
-6.Palestra- A cultura do hinhame:um resgate dos arranjos produtivos locais/carga horaria:1h
-7.
-8.
+1.Oficina/workshop-nações de Investimento básico/
+
+carga horaria:4h
+
+2.Metaverso uma imersão educacional/
+
+carga horaria: 2h
+
+3.pibic2021/2022e pibex2021/
+
+carga horaria:4h
+
+4.Filme - o menino que descobriuo vento/
+
+carga horaria 2h
+
+5.Oficina/workshop-nações de Investimento
+
+básico/carga horaria:4h
+
+6.Palestra- A cultura do hinhame:um resgate dos arranjos produtivos locais/
+
+carga horaria:1h
+
+7.sesao de paines jonada tecnica cientifica e mostra de extensao/
+
+carga hoaria:4h
+
+8.Paletra- A amozonia e os desafios de agritura moderna uma visao biotecnologica na cultura do dende/
+
+carga horaria: 1h
+
+
+
